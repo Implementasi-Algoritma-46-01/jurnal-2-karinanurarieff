@@ -1,8 +1,8 @@
 ## Identitas
 
-Nama: 
+Nama: Karina Nur Arieffin
 
-NIM : 
+NIM : 607062400088
 
 ## Instruksi
 
